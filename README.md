@@ -26,4 +26,4 @@ Je suis Fred, un passionné de technologie et en pleine transition vers le déve
 Vous pouvez me joindre ici :
 
 LinkedIn : https://www.linkedin.com/in/fr%C3%A9d%C3%A9ric-chanu-a39553231/
-Email : frederic.chanu@orange.fr
+Email : contact.novatechstudio@gmail.com
